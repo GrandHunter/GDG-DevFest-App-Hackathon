@@ -21,7 +21,7 @@ If that’s not attractive enough, we also have some sweet, sweet prizes!
 ## **Prizes** 🏆
 1st Place: Amazfit GTS Smart Watch\
 2nd Place: Google Home Mini 1st Generation\
-3rd Place: Xiaomi Mi Band 5
+3rd Place: Xiaomi Mi Band 5 
 
 ## Judging
 Judging will be based on three main areas. For each area, each submission can receive a maximum of 10 scores. Areas are as following: 
